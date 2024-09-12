@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Apriliadewihutapea
-- 👀 I’m interested in Data and Music
+- 👀 I’m interested in Data 
 - 🌱 I’m currently learning in Sumatera Institute of Technology 
 - 😄 Pronouns: she/her
 
